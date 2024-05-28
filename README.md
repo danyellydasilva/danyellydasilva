@@ -2,7 +2,7 @@
 - 👀 estou interressado: em apreender
 - 🌱 atualmente estou aprendendo: a cria projetos
 - 💞️ procuro coloborar em: ajudar as pessoas 
-- 📫 como entra em contanto comigo: por meios de ligacao
+- 📫 como entra em contanto comigo: por meios de ligação 
 - 😄 Pronouns:francos
 - ⚡ curiosidades:tenho 16 anos,estudo e trabalho
 
